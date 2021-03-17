@@ -1,0 +1,1 @@
+![Image of Artorias](https://res.cloudinary.com/cook-becker/image/fetch/q_auto:best,f_auto,w_1920,e_sharpen/https://candb.com/site/candb/images/artwork/Dark-Souls-Artorias-of-the-Abyss_Nekro-Bandai-1600.jpg)
